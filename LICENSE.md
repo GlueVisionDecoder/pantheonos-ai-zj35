@@ -1,4 +1,4 @@
-# 
+# Seguro PantheonOS preajustes. Con visión por computadora y reconocimiento de imágenes — optimizado para el máximo rendimiento.
 
 
 
